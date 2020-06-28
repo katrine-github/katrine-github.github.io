@@ -16,5 +16,5 @@ Balu ist ein gemütlicher Bär, der das Leben in vollen Zügen genießt. Im Dsch
 > That`s why a bear can rest at ease
 > With just the bare necessities of life
 
-<img src="https://flic.kr/p/8mJRsa"/>
+<img src="https://live.staticflickr.com/4093/4829188353_611bc963cc.jpg"/>
 
