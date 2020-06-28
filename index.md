@@ -9,3 +9,9 @@ Balu ist ein gemütlicher Bär, der das Leben in vollen Zügen genießt. Im Dsch
 * lebt im Dschungel
 * ist etwas naiv
 * adopiert den sorglosen Mogli und wird sein Lehrer in Sachen Gemütlichkeit
+
+> look for the bare necessities
+> The simple bare necessitiesForget about your worries and your strife
+> I mean the bare necessities
+> That`s why a bear can rest at ease
+> With just the bare necessities of life
